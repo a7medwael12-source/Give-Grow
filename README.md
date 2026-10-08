@@ -3,3 +3,4 @@ Give Grow is a social impact platform connecting small businesses, charities, an
 Maivel maged    Maryam mohamed   Ahmed wael    Ahmed omar   Youssef ayman 
 Ahmed wael:Tech Maryam:Tech Maivel:Research Ahmed Omar:docmentation Youssef:docmentation
 Dr.Eman abdellatif
+https://drive.google.com/drive/folders/11ezkXuHYMAamUTGma9BwbHndqkE4VWtg?usp=drive_link
